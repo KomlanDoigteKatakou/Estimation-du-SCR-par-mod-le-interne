@@ -31,4 +31,4 @@ finalisé.
 
 ## Auteur
 
-Komlan Katakou — M1 Mathématiques générales, Université Lyon 1 (2025–2026)
+Komlan Katakou — M1 Mathématiques appliquées, Université Lyon 1 (2025–2026)
